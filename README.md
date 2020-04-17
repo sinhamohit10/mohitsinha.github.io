@@ -1,2 +1,2 @@
-# mohitsinha.github.io
+# sinhamohit10.github.io
 Mohit's Website
